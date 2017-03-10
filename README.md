@@ -1,4 +1,4 @@
-ESSENCE OF SINGUALRITY
+Essence Of Singularity
 ======================
 
 ```
