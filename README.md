@@ -18,7 +18,7 @@ Maybe the most elegant solution here would be to say that both options are true 
 
 Recursive (Anglo-Saxon) vs Inclusive (Continental) view
 -------------------------------------------------------
-It seems nothing would make Anglo-Saxon view of the world happier, than a discovery, that universe is a fractal. One possible model of a fractal universe predicts a new universe in each black hole. With this view, it is also possible to imagine cosmic selection, according to which every child universe inherits slightly mutated laws of physics from it's parent, and thus more stable universes have a higher chance of reproduction.
+It seems nothing would make Anglo-Saxon view of the world happier, than a discovery, that universe is a fractal. One possible model of a fractal universe predicts a new universe in each black hole. With this model, it is also possible to imagine cosmic selection, according to which every child universe inherits slightly mutated laws of physics from it's parent, and thus more stable universes have a higher chance of reproduction.
 
 So the question is, what does this view accomplish/change. It seems, that it manages to get rid of a great creator, but does it? Does it not imply even more ingenious, though lazy creator (similar to the best computer programmers, which are usually so lazy, that they refuse to do any work, that could be automated by writing a program)?
 
