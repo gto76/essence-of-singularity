@@ -12,7 +12,7 @@ Less than something, more than nothing
 --------------------------------------
 Spirit as such, could be described as less than something — it is a notion that can be applied retroactively to "events"/relations among stuff; and more than nothing — it still possesses some actuality, or at least seems to posses direction (toward absolute knowledge). But for it to have a direction, the outer bounds must preexist, or at least be "created" at the same time.
 
-Spirit (structure) is in a way an essence of singularity, that can only exist, if it's bounded by the two "miracles" (big bang and absolute knowledge). So in a way, all of them already somehow exist in singularity, but are not yet actualized. But then again, they don't [exist], because big bang is a divider between singularity and structure — and it's hard to imagine a thing possessing a divider, by which it is divided from other thing(s), even if that other thing(s) and the divider seem to be of it (singularity).
+Structure (spirit) is in a way an essence of singularity, that can only exist, if it's bounded by the two "miracles" (big bang and absolute knowledge). So in a way, all of them already somehow exist in singularity, but are not yet actualized. But then again, they don't [exist], because big bang is a divider between singularity and structure — and it's hard to imagine a thing possessing a divider, by which it is divided from other thing(s), even if that other thing(s) and the divider seem to be of it (singularity).
 
 Maybe the most elegant solution here would be to say that both options are true at the same time, and that's that :) — it seems this "paradox" could be at heart of Christian theologists' struggles with the unity of God and the nature of the holy trinity.
 
