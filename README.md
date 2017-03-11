@@ -10,7 +10,7 @@ SINGULARITY |    ——————              |
 
 Less than something, more than nothing
 --------------------------------------
-Spirit as such, could be described as being less than something — it is a notion that can be applied retroactively to "events"/relations among stuff; and more than nothing — it still possesses some actuality, or at least seems to posses direction (toward absolute knowledge). But for it to have a direction, the outer bounds must preexist, or at least be "created" at the same time.
+Spirit as such, could be described as less than something — it is a notion that can be applied retroactively to "events"/relations among stuff; and more than nothing — it still possesses some actuality, or at least seems to posses direction (toward absolute knowledge). But for it to have a direction, the outer bounds must preexist, or at least be "created" at the same time.
 
 Spirit (structure) is in a way an essence of singularity, that can only exist, if it's bounded by the two "miracles" (big bang and absolute knowledge). So in a way, all of them already somehow exist in singularity, but are not yet actualized. But then again, they don't [exist], because big bang is a divider between singularity and structure — and it's hard to imagine a thing possessing a divider, by which it is divided from other thing(s), even if that other thing(s) and a divider seem to be of it (singularity).
 
