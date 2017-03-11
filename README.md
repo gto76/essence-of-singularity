@@ -26,7 +26,7 @@ Another obvious change is that it distances a given universe from the primordial
 
 But let's regress a bit here and try to examine the correlation between the concepts of Anglo-Saxon recursion and Hegel's onion (layers of "synthesis"). The main difference between the concepts may be that the onion is defined (bounded) by it's outer layer, while recursion by it's origin. This distinction is of course inefficient. Much more enlightening approach would probably be, to focus on pursuit of Anglo-Saxon thought to substantiate itself with strict adherence to it's own rigor (could this be considered a pun?). Of course this "diss" merits an response, which could focus on Hegel's endless reappropriation of his previous reappropriations, that somehow always end up proving him right.
 
-Nonetheless there is a glaring difference in actualizations of the two thoughts. It seems almost like any paragraph from Hegel's Phenomenology, chosen at random, contains the essence of the continental thought, while on the other hand each Anglo-Saxon work seems to add a new piece to the puzzle.
+Nonetheless there is a glaring difference in actualizations of the two thoughts. It seems like almost any paragraph from Hegel's Phenomenology, chosen at random, contains the essence of the continental thought, while on the other hand each Anglo-Saxon work seems to add a new piece to the puzzle.
 
 
 
